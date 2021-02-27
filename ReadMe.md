@@ -1,0 +1,1 @@
+Fish and chips is a hot dish consisting of fried fish in batter, served with chips. The dish originated in England, where these two components had been introduced from separate immigrant cultures; it is not known who created the culinary fusion that became the emblematic British meal.
